@@ -1,1 +1,1 @@
-# participantes-t5
+# Maravilloso proyecto colaborativo 💫
